@@ -1,3 +1,9 @@
+## Kwon's resume
+![Kwon's Resume conv 1](https://github.com/user-attachments/assets/1a46fe30-1886-4625-a2be-642763748d28)
+
+
+
+
 ## Kwon's portfolio 👋
 
 <!--
